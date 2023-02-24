@@ -1,6 +1,6 @@
 
 
-## &#128055; MMMMPSSSHHHH AHHHHHHHHHHHHHHHHH &#128055;
+## &#128055; (_)(_)ZZZZZZZD- - - CRUTTT &#128055;
 
 ## &#128055; XRAY MULTIPORT WEBSOCKET AUTOSCRIPT DETAILS &#128055;
 
@@ -27,7 +27,7 @@
 ✅ AUTOMATIC VPS REBOOT <br>
 ✅ BACKUP & RESTORE <br></br>
 
-## Register IP (PM your username & IP):<a href="https://t.me/jsPhantom" target=”_blank”><img src="https://img.shields.io/static/v1?style=for-the-badge&logo=Telegram&label=Telegram&message=Click%20Here&color=blue"></a><br>
+## Register IP (PM your username & IP):<a href="https://t.me/lunoximpostor" target=”_blank”><img src="https://img.shields.io/static/v1?style=for-the-badge&logo=Telegram&label=Telegram&message=Click%20Here&color=blue"></a><br>
 
 
 ## &#128073; Root Access <br>
